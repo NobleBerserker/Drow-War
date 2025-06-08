@@ -13,6 +13,8 @@ permissions:
 concurrency:
   group: "pages"
   cancel-in-progress: false
+
+workflow_dispatch:
  
 jobs:
   build:
