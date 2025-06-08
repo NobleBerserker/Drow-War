@@ -1,0 +1,1 @@
+He wants to rebuild [[Blediwesse's Temple]] in [[Bronce]]. Seems like a good person.

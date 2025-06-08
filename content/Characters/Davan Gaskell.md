@@ -1,0 +1,1 @@
+Veteran guard in [[Bronce]].

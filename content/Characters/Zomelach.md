@@ -1,0 +1,1 @@
+A drow that used poison to kill [[Starkweather John]]. [[Zomelach]] died before the poison managed to kill [[Starkweather John]].

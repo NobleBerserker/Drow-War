@@ -1,0 +1,1 @@
+A guard that gave us some information and shared a meal with us in the [[Golden Nugget]]. 

@@ -1,0 +1,1 @@
+An abandoned temple lies in ruins in the middle of [[Bronce]].
