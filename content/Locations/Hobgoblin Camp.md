@@ -1,0 +1,1 @@
+A hobgoblin camp we found in the forest near [[Bronce]]
