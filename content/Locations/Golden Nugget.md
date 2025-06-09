@@ -1,1 +1,1 @@
-The Inn of the [[Bronce]].
+The Inn of [[Bronce]].
