@@ -52,3 +52,18 @@ On the grave was the inscription
 > *To cast from his exalted place*  
 > *The foe that bears a dead king’s face*
 
+We came across a black-fletched [[Drow]] arrow with tracks splitting in two directions — one set veering into the forest, the other toward the mine. After a brief discussion, we agreed to investigate the forest first.
+
+Winding through the woods, we eventually discovered a [[Hobgoblin Camp]]. About six adult hobgoblins, along with their children, were gathered around modest tents and a low-burning fire. They weren’t hostile — just wary. After observing them from a safe distance, we chose not to engage. There was no need for bloodshed.
+
+We turned our attention back to the second trail, following it to the mine. It didn’t take long to notice signs of recent use — discarded bottles, disturbed dirt, and a faint reek of alcohol. Someone — likely a drunk — had been coming and going.
+
+Despite concerns that the tunnels might flood, we pressed inside. Before long, we stumbled upon the source of the smell: a drunken hobgoblin slumped against a crate. He wasn’t in the mood for negotiation. A short fight followed, and we left him unconscious on the stone floor.
+
+Then, deeper into the mine, we encountered a wall of thick, pale spiderwebs. For reasons unclear, [[Rey]] told [[Phoenix]] to burn them. And — reluctantly — he did.
+
+To his regret.
+
+The webs hissed as they burned... and then moved. Countless tiny legs poured out from the shadows, the fire waking not silence, but a storm of spiders crawling toward him.
+
+~ To be Continued ~
