@@ -1,3 +1,4 @@
+![[Phoenix.png]]
 **Race**: [[Humans|Human]]  
 **Class**: Druid  
 **Companion**: A loyal dog 

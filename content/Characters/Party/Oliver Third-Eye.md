@@ -1,3 +1,4 @@
+![[Oliver.jpg|300]]
 **Race**: [[Humans|Human]]
 **Class**: Bard  Astrologist
 **Appearance**: Dark blonde hair, shoulder-length; a contemplative, searching gaze.  
