@@ -1,0 +1,1 @@
+The leader of the [[Talks-With-Fists Tribe]]. Doesn't seem too bright.

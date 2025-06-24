@@ -1,0 +1,1 @@
+A tribe that has a [[Hobgoblin Camp]] in the forest.

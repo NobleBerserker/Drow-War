@@ -1,0 +1,1 @@
+The ghost of the mine. We found his body deep into the mine.

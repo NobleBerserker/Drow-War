@@ -60,10 +60,29 @@ We turned our attention back to the second trail, following it to the mine. It d
 
 Despite concerns that the tunnels might flood, we pressed inside. Before long, we stumbled upon the source of the smell: a drunken hobgoblin slumped against a crate. He wasn’t in the mood for negotiation. A short fight followed, and we left him unconscious on the stone floor.
 
+- we found a note that some people have been taken inside the mine Help hobgoblins took us J + C
+
 Then, deeper into the mine, we encountered a wall of thick, pale spiderwebs. For reasons unclear, [[Rey]] told [[Phoenix]] to burn them. And — reluctantly — he did.
 
 To his regret.
 
 The webs hissed as they burned... and then moved. Countless tiny legs poured out from the shadows, the fire waking not silence, but a storm of spiders crawling toward him.
 
-~ To be Continued ~
+After all, we managed to **escape the spiders**, and I felt the need to complain about provoking our luck. When the danger passed, we were worried that we might have caused the death of an unconscious [[Hobgoblins|hobgoblin]], so we went inside to check. **He was alive!** We moved him outside the mine and followed the rails.
+
+As we were following down the path, we **heard whispers**. We decided to check it out. We got **attacked by hobgoblins**! They were scared and unwilling to discuss the motive of their assault, so we fought them off. As we moved back to the rails, we **saw a ghost**. The ghost simply pointed downwards and let us be.
+
+We found a way to get to the **lower level of the mine**. There was a platform that could be lowered. We tied a rope to make sure we had a way up. We moved down and saw the **flooded mine**—it would be tough to get through.
+
+We were about to leave when we saw a **dead body**, cut through with an axe. It was the **ghost's body**—this is what he wanted us to find. The body belonged to a [[Tax Collector|tax collector]], and we would soon find out who killed him.
+
+However, against our better judgement, we decided to move through the flooded mine. It was where **J + C** were—[[Jed and Callum|Jed]] and [[Jed and Callum|Callum]]. They were being held hostage by some hobgoblins. We learned that **Jed, the boy, had escaped into the mine**. We **offered 2,000 gold** for both of them—not that we had that kind of gold! It was a **deception** to make sure the boy was safe and to give both children some time to live as we planned how to save them.
+
+We left for now, and as we tried to get back up, we realized something—**no one was on the upper level to raise the platform**. The rope came in handy after all. We climbed up and moved to the exit.
+
+There, **[[Jim Oakenbough]] was waiting for us**, and we got the answer to the question: _"Who killed the tax collector?"_ He attacked us, and we were **forced to kill him and his team**. Only one escaped—running toward the [[Windmill]].
+
+I really did not want to follow them there. It would **get us into bigger trouble**. Our only chance would be to go back to [[Bronce]] and hope they would not all turn against us.
+
+
+

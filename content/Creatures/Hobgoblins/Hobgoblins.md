@@ -1,0 +1,1 @@
+The Hobgoblins we've met are divided into two tribes. The [[Talks-With-Fists Tribe]] in the [[Bronce Mine]] and the [[Forest Tribe]]
