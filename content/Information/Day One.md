@@ -84,5 +84,14 @@ There, **[[Jim Oakenbough]] was waiting for us**, and we got the answer to the q
 
 I really did not want to follow them there. It would **get us into bigger trouble**. Our only chance would be to go back to [[Bronce]] and hope they would not all turn against us.
 
+After a few disagreements we decided to head to the [[windmill]] and find the escapee. After [[Phoenix]] handled the dogs that guarded the [[windmill]] we managed to get inside and we found the bandit aiming at us with a crossbow. We talked about letting him leave in exchange for information. I wanted to honor the deal but the others had betrayal in their mind. So instead of letting him [[Rey]] subjugated him with a spell. Phoenix tied him up and we collected the tax collector's chest. After that we headed to [[Bronce]], with the bandit, a hobgoblin and the tax collector. 
+
+We had a lot of explaining to do first we spoke to the priest, [[Father Tobias Bronson|Father Tobias]]. He believed us but we had to find [[Davan Gaskell|Davan]] and [[Morton Gimbert|Morton]], the guards. They seemed glad that we stopped [[Jim Oakenbough|Jim]] for good. When we informed them about the children they agreed to help. [[Davan Gaskell|Davan]] considered [[Morton Gimbert|Morton]] too green to join us so he would join us himself. [[Father Tobias Bronson|Father Tobias]] also joined us, after healing Phoenix and his dog. 
+
+The group wanted to get a cart from a lady, and complained quite loudly about it. After things calmed down, we went to the [[Bronce Mine|mine]] to confront the [[Talks-With-Fists Tribe|hobgoblins]]. We had a plan of distracting them with the money, we would attack as they were counting. However, this did not work because they still hadn't found the boy. A worried [[Phoenix]] rushed in the direction where the boy was lost, while the rest of us had to fight for not following their orders to stand our ground. So the fight begun and blood was spilled. When the fight was done, I noticed three children, three hobgoblin children. I could not let them fend for themselves, and despite them being part of an aggressive tribe, I hoped to find them a home among humans in [[Bronce]]. At the same time, [[Phoenix]] managed to save [[Jed and Callum|Callum]]. He also claimed that he found a weird door there. I have a feeling about this door, something tells me we should go there as soon as possible.
+
+We headed back to [[Bronce]] once more. The hobgoblin children had trouble getting in. There seemed to be some sort of old magic protecting [[Bronce]] against them. They got in, in the end. I made sure to inform people that they are no danger to them, and they are with me. It seemed that our recent actions earned us [[Davan Gaskell|Davan]]'s trust and he informed us that the [[Starkweather's Sword|sword]] we are looking for is hidden underneath the old temple.
+
+We'll see what tomorrow brings...
 
 
