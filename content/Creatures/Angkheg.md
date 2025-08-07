@@ -1,0 +1,1 @@
+An insect-like monstrosity that burrows underground.

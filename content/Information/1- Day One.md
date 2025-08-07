@@ -95,3 +95,4 @@ We headed back to [[Bronce]] once more. The hobgoblin children had trouble getti
 We'll see what tomorrow brings...
 
 
+Next: [[2 - Day Two]]

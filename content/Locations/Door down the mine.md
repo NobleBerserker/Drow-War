@@ -1,0 +1,1 @@
+Has a relief of bald warriors coming out of the Underdark and attacking the surface dwellers.

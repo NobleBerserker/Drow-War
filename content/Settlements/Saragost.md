@@ -1,1 +1,1 @@
-The capital of Chillhame is Saragost, a walled city that boasts a fortified harbour.
+The capital of [[Chillhame]] is Saragost, a walled city that boasts a fortified harbour.
